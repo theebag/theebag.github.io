@@ -21,7 +21,7 @@ Markantes Zitat von Alaska:
 
 
 > Disclaimer:
-
+>
 > Der Inhalt ist verfügbar unter der Lizenz GNU Free Documentation License 1.2, Perrypedia.
 > Bei dieser Seite handelt es sich ein Schulungsprojekt fuer den privaten, nicht kommerziellen
 > Gebrauch, diese Webpage wird nach Beendigung der Schulung gelöscht.
