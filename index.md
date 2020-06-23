@@ -26,3 +26,4 @@ Markantes Zitat von Alaska:
 > Bei dieser Seite handelt es sich ein Schulungsprojekt fuer den privaten, nicht kommerziellen
 > Gebrauch, diese Webpage wird nach Beendigung der Schulung gelöscht.
 > Das Bild Copyright liegt unangetastet beim Pabel-Moewig Verlag KG, Rastatt.
+> 24/06/2020.
