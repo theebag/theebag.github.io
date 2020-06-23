@@ -12,3 +12,7 @@ ansichtig wurde, nennen ihn viele einen kosmischen Menschen.
 	* 2,00 m gross, hagere Gestalt
 	* Schillerndes Capping-Fragment im Gesicht
 	* Zellaktivator bekommen im Jahr 3531
+	
+Markantes Zitat von Alaska:
+
+> Ich wuenschte Kytoma waere jetzt bei mir...
