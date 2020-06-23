@@ -16,3 +16,5 @@ ansichtig wurde, nennen ihn viele einen kosmischen Menschen.
 Markantes Zitat von Alaska:
 
 > Ich wuenschte Kytoma waere jetzt bei mir...
+
+<img src="https://www.perrypedia.de/mediawiki/images/6/66/PR2333Illu.jpg">
